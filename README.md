@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Ronald Hochreiter @hochreiter
+- 📫 To find out more just browse to https://hochreiter.xyz/
